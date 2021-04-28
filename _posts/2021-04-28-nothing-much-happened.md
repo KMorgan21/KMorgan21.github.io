@@ -1,0 +1,1 @@
+Yesterday was pretty much like all the rest of my day's. I wake up around 3 and stay in bed for about an hour and then i get up just to stretch and about an hour later it's time for night school and after that i play my game but it get's boring when none of my friends were on.And that's pretty much it.
