@@ -1,0 +1,1 @@
+Yesterday i was looking for people to play valorant with and i ended up playing with a smurf and got carried all the way to bronze 3. I have a new group of people im going to play valorant with today so im doing school early so i can play with them alot today.
